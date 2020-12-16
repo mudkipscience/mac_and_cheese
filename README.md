@@ -18,7 +18,6 @@
 -	125g shredded parmesan cheese
 -	½ to 1 cup of milk
 -	Fresh parsley
--	~~The optional special ingredient uwu~~
 
 ### Instructions:
 -	Put the macaroni, chicken stock, butter, hot sauce, garlic powder, salt and pepper in the pressure cooker
